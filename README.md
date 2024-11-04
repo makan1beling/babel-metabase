@@ -1,0 +1,1 @@
+peta untuk pelatihan metabase
